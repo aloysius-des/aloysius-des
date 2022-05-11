@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @aloysius-des
+- 👀 I’m interested in design
+- 🌱 I’m currently learning figma
+- 💞️ I’m looking to collaborate on design projects
+- 📫 How to reach me: augustinembanu20@gmail.com
